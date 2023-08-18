@@ -1,5 +1,5 @@
 ### 🎸 hora de enfrentar as consequências de sua falha 🎸
-![https://media.tenor.com/jrXZVR3HpHoAAAAj/ugeryrafatrickle.gif]
+![](https://media.tenor.com/jrXZVR3HpHoAAAAj/ugeryrafatrickle.gif)
 
 
 <!--
