@@ -1,7 +1,5 @@
 ### 🎸 hora de enfrentar as consequências de sua falha 🎸
 ![](https://media4.giphy.com/media/Jm49malr7B57i/200.webp?cid=ecf05e47znlufzxykgyu3hg8lrww2tdltrpnc86daqfvcmpe&ep=v1_gifs_search&rid=200.webp&ct=g)
-
-
 <!--
 **RyanBatistaBueno/RyanBatistaBueno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
